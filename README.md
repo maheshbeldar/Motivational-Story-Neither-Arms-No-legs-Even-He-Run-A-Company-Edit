@@ -1,0 +1,2 @@
+# Motivational-Story-Neither-Arms-No-legs-Even-He-Run-A-Company-Edit
+1.Nick Vujicic जिनके दोनों हाथ और पैर नहीं हे फिर भी वह करोड़ो की कंपनी के मालिक हे 2.निक वुजिसिक का केवल धड ही हे फिर भी वह फुटबॉल और गोल्फ खेल लेते हे,स्विमिंग कर लेते हे,लिख लेते हे और 45 वर्ड पर मिनिट टाइप भी करते हे 3.निक वह हरेक काम करते हे जो एक हाथ और पैर वाला आदमी कर शकता हे आगे https://motivatemeindia.com/motivational-story-hindi/
